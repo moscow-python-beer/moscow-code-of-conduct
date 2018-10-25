@@ -22,7 +22,7 @@ It depends:
 1. Nothing may happen
 2. People can tell you that you are an asshole
 3. People can apply any administrative regulations that they find acceptable for your behavior
-4. People can beat shit out of you
+4. People can beat the shit out of you
 5. You can get arrested if you violate the law while being an asshole
 
 ## Addressing Grievances
