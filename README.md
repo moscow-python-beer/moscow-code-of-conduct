@@ -28,7 +28,7 @@ It depends:
 ## Addressing Grievances
 
 Just deal it with.
-You can also accuse another party at being more asshole that you if that's actually true.
+You can also accuse another party at being more asshole than you if that's actually true.
 
 ## Scope
 
